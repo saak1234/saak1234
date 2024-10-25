@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning web development<br>📫 How to reach me akshoygorai3@gmail.com
+🌱  Web developer<br>📫 How to reach me akshoygorai3@gmail.com
 
 
 ## 🌐 Socials:
